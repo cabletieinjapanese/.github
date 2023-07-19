@@ -3,4 +3,3 @@ robocup team for hwa chong robotics.
 
 batch of 2027. struggling to not troll.
 
-@bigdigpower @inf-32 @lohhaoyuan
