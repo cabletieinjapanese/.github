@@ -1,4 +1,4 @@
-## *kessoku band*, which is [cable tie in japanese](https://instagram.com/cabletieinjapanese)
+## 結束バンド, which is kanji for *kessoku band*, which is [cable tie in japanese](https://instagram.com/cabletieinjapanese)
 robocup competition team \
 designed and assembled by chinese children \
 661 Bukit Timah Road, Singapore, Singapore
